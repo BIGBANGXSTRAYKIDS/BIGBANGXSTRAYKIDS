@@ -7,5 +7,5 @@
   ![image description](https://pixelsafari.neocities.org/blinkies/media/evanescence.gif)
 
   
-  ![image description](https://blinkies.cafe/b/blinkiesCafe-TR.gif) ![image description](https://pixelsafari.neocities.org/blinkies/media/mlp.gif) ![image description](https://pixelsafari.neocities.org/blinkies/vampirwonthurtyou.gif) ![image description](https://pixelsafari.neocities.org/blinkies/lovetodeath.gif)
+ ![image description](https://pixelsafari.neocities.org/blinkies/media/mlp.gif) ![image description](https://pixelsafari.neocities.org/blinkies/vampirwonthurtyou.gif) ![image description](https://pixelsafari.neocities.org/blinkies/lovetodeath.gif)
 
